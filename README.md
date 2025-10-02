@@ -1,4 +1,6 @@
-## Hola sóc l'Ivan tinc 17 anys i actualment estic estudiant un grau mitja en microinformàtica i xarxes.
+## Ivan Sicra
+🌱Sóc un estudiant de 17 anys i actualment estic cursant un grau mitja de microinformàtica i xarxes.
+⚡M'agrada l'informàtica i l'esport
 
 <!--
 
