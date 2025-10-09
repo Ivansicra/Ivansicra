@@ -1,8 +1,8 @@
 ## Sobre mi
 🌱Sóc un estudiant de 17 anys i actualment estic cursant un grau mitja de microinformàtica i xarxes.
 ⚡M'agrada l'informàtica i l'esport
-
-<!--
+Si t'interessaria contractar-me 'tadjunto el meu curriculum:
+https://www.canva.com/design/DAGc0QkiYD8/ShJBpROpR5_xkI6XF3t6tw/edit?utm_content=DAGc0QkiYD8&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
 
 Here are some ideas to get you started:
