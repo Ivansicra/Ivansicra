@@ -3,4 +3,3 @@
 
 ⚡M'agrada la informàtica i l'esport.
 
-Si estàs interessat a contractar-me t'adjunto el meu currículum: https://drive.google.com/file/d/1FS6Ma9HkuK7wnR9rmUIG5I15feI1qARt/view?usp=sharing
